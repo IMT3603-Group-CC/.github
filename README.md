@@ -1,4 +1,0 @@
-# Chaos Carnival
-
-## By:
-
